@@ -125,6 +125,7 @@ This project values:
 - depth over breadth.
 
 ---
+[Visit our website](https://savinykho.wixsite.com/consciousnessreality)
 
 ## Closing Note
 
